@@ -14,4 +14,7 @@ In fact, there were also people that supported an **antinuclear weapons movement
 - The **antinuclear weapons movement** spread to western nations in the late 1970s and early 1980s.
 	- **New York City (1982)** - One million people demonstrated against the creation and use of nukes.
 
+**1987 - Intermediate-Range Nuclear Forces Treaty**
+- restricted intermediate-range nuclear weapons between the US and USSR, easing tensions across the globe.
+
 
