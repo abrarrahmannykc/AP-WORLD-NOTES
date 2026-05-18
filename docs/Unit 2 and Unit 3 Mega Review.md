@@ -33,7 +33,7 @@ The Silk Roads connected East Asia to the Mediterranean world. During this era, 
 
 ## 2. The Mongol Empire and the Making of Afro-Eurasia
 
-Temüjin unified the fragmented pastoral nomadic tribes of the Mongolian steppe, taking the title **Genghis Khan** in 1006. He initiated the largest contiguous land empire in human history.
+Temüjin unified the fragmented pastoral nomadic tribes of the Mongolian steppe, taking the title **Genghis Khan** in 1206. He initiated the largest contiguous land empire in human history.
 
 ### Conquest Tactics and Governance
 

@@ -158,7 +158,7 @@ Following the collapse of the Western Roman Empire, Europe was politically decen
 
 - **Political Feudalism**: A decentralized mutual-defense system based on land-for-loyalty agreements:
     
-    - _Monarchs_ granted land land (_fiefs_) to noble _Lords_.
+    - _Monarchs_ granted land (_fiefs_) to noble _Lords_.
         
     - _Lords_ hired _Knights_ (vassals) to act as military protection.
         
